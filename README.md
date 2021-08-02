@@ -1,4 +1,4 @@
-### Olá Mundo!
+### Welcome Stranger, Got something that might interest ya heheh.
 
 <div>
     <a hre="https://github.com/EnzoJ0se">
