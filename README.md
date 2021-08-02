@@ -1,4 +1,4 @@
-### Welcome Stranger, Got something that might interest ya heheh.
+### Welcome stranger, got something that might interest ya heheh.
 
 <div>
     <a hre="https://github.com/EnzoJ0se">
